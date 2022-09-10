@@ -1,4 +1,4 @@
-## :🇧🇷: Planos de Governos candidatos a presidente Brasil 2022 :🇧🇷:
+## Planos de Governos candidatos a presidente Brasil 2022 
 
 O plano de governo de um candidato tem como intenção atrair votos expondo suas ideias e propostas para melhorar a cidade, estado ou país que almejam governar. Então, uma das formas de expô-las ao público é pelo plano de governo, um documento já tradicional na política brasileira.
 
